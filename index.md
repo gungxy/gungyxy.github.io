@@ -1,6 +1,4 @@
 ## Gung 的音乐作品
-  
-<img src="assets/cover_summertime_lemon.jpeg" width="300"/>
 
 ### 香水柠檬脆啵啵
 
