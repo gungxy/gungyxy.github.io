@@ -8,7 +8,7 @@
 
 Gung 作曲编曲 / 扬帆工作室发行 / 2021 年 7 月
 
-[ 去 QQ 音乐听](https://c.y.qq.com/base/fcgi-bin/u?__=Zf8mNb4o)   
+[ 去 QQ 音乐听](https://i.y.qq.com/v8/playsong.html?songmid=003y0vQB0b1vQE&ADTAG=myqq&from=myqq&channel=10007100)   
 
 
 
