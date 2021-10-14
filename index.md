@@ -4,7 +4,7 @@
 
 ## 作品
 
-### ♬ 香水柠檬脆啵啵（Summertime Lemon）
+### ♬ 香水柠檬脆啵啵（Summertime ）
 
 Gung 作曲编曲 / 扬帆工作室发行于 2021 年 7 月
 
